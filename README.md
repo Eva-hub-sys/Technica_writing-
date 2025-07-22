@@ -1,1 +1,1 @@
-# Technica_writing-
+# Technical_writing-
